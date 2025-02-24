@@ -3,7 +3,7 @@
 
 💌 Reach me - atharvjadhav2910@gmail.com
 
-🧾 Resume - [Atharv](https://drive.google.com/file/d/1k4xIBLt8ouOkBUgbfGVF9bIVQsOr4Rn5/view) 🎯
+
 
 🧾 Portfolio - [Atharv Mohan Jadhav](https://atharvmohanjadhav.github.io/)
 <h3 align="left">Connect with me:</h3>
